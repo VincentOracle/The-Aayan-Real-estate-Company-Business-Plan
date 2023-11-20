@@ -1,5 +1,5 @@
 # The-Aayan-Real-estate-Company-Business-Plan
-This is a business plan for the Aayan Real-estate Company in KUWAIT
+This is basically a business plan for the Aayan Real-estate Company in KUWAIT
 
 Aayan Real-Estate Company is a leading real estate firm dedicated to providing exceptional property solutions. With a strong presence in the commercial real estate industry, we aim to deliver high-quality services to meet the diverse needs of our clients.
 
